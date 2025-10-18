@@ -1,1 +1,0 @@
-https://github.com/khalikovv/ono-tebe-nado-ad
